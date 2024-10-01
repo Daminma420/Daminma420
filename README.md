@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Daminma420
 - 👀 I’m interested in not speaking to women
-- 🌱 I’m currently learning how to speak with women
+- 🌱 I’m currently learning how to not be afraid of women
 - 💞️ I’m looking to collaborate with dating coaches
 - 📫 How to reach me, you have to flirt with me
 - 😄 Pronouns: I identify as a person who is afraid of Women
